@@ -1,1 +1,1 @@
-Repository baru dari pc lokal
+Repository baru dari pc lokal.
